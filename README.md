@@ -35,7 +35,7 @@
 
 Si tienes alguna pregunta, una idea emocionante o estás interesado en colaborar en un proyecto innovador, ¡no dudes en contactarme! 😊
 
-- **LinkedIn:** [Matias Vincent](www.linkedin.com/in/matias-vincent)
+- **LinkedIn:** www.linkedin.com/in/matias-vincent
 - **Correo Electrónico:** matiasvincent2002@gmail.com
 
 ¡Gracias por visitar mi perfil y explorar mi trabajo! 👋🚀
